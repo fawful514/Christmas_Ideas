@@ -78,5 +78,6 @@ YOUNGLA CODE: **BLACKFRIDAY** OR **ANT**
 - Electric Toothbrush
 - Vacuum
 - Chess.com Diamond Membership
-  
-  <img src="" width="250" height="300">
+ 
+ 
+ [//]: # (  <img src="" width="250" height="300">)
