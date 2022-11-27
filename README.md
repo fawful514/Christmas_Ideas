@@ -8,7 +8,7 @@ USE CODE **BLACKFRIDAY** AT YOUNGLA FOR 30% OFF OR **ANT** IF BLACKFRIDAY IS OVE
 
 ## Stringers
 Preferred brand of stringers is **Gymshark**  
-CODE: **EXTRATWENTY**
+CODE: **EXTRATWENTY**  
 
 - [Gymshark Legacy Stringer](https://www.gymshark.com/products/gymshark-legacy-stringer-black-aw22) Any Color, $11.20  
   <img src="https://cdn.shopify.com/s/files/1/0156/6146/products/LegacyStringerBlack-BlackA1A8Q-BBF72_885x.jpg?v=1668623172" width="250" height="300">
@@ -24,8 +24,8 @@ CODE: **EXTRATWENTY**
 
 ## Shorts
 Preffered brands of shorts are **Gymshark** and **YoungLA**  
-GYMSHARK CODE: **EXTRATWENTY**
-YOUNGLA CODE: **BLACKFRIDAY** OR **ANT**
+GYMSHARK CODE: **EXTRATWENTY**  
+YOUNGLA CODE: **BLACKFRIDAY** OR **ANT**  
 
 - [Gymshark Crest Shorts](https://www.gymshark.com/products/gymshark-crest-shorts-light-grey-marl-aw22) Any Color, $19.60    
   <img src="https://cdn.shopify.com/s/files/1/0156/6146/products/CrestShort_Slim_LightGreyCoreMarlA2A1S-GBCN.A_ZH_ZH_b0ca840d-9150-4ace-b6a6-5b5dd2692811_885x.jpg?v=1665173353" width="250" height="300">
@@ -50,8 +50,8 @@ YOUNGLA CODE: **BLACKFRIDAY** or **ANT**
   <img src="https://cdn.shopify.com/s/files/1/1775/6429/products/YLA10.14.21-103_400x.jpg?v=1653435166" width="250" height="300">
 
 ## Long Sleeve Shirts
-Preferred brands of long sleeve shirts are **Gymshark** and **YoungLA**
-GYMSHARK CODE: **EXTRATWENTY**
+Preferred brands of long sleeve shirts are **Gymshark** and **YoungLA**  
+GYMSHARK CODE: **EXTRATWENTY**  
 YOUNGLA CODE: **BLACKFRIDAY** OR **ANT**
 
 - [Gymshark Legacy Long Sleeve](https://www.gymshark.com/products/gymshark-legacy-long-sleeve-t-shirt-hoya-green-aw22) Not Black, $20.40  
